@@ -1,11 +1,21 @@
-Well, you can hide a lot about yourself
+Modem talking, modern walking in the streets
 
-but, honey, what are you gonna do?
+New desire, take me higher,
 
-And you can sleep in a coffin, but the past ain't through with you
+Lift me higher with your speed
 
-'Cause we are all a bunch of liars, tell me, baby, who do you wanna be?
+I need fire
 
-And we are all about to sell it, 'cause it's tragic with a capital T
+Get the satellite if you want to see me
 
-Let it be, let it be, let it be
+Talking on the net, I know the way you like it
+
+Get your credit card, 'cause I need no money,
+
+All I wanna get is you baby
+
+Running in the 90s, is a new way I like to be
+
+I'm just running in the 90s, come on baby run to me
+
+We are running in the 90s, is a new way to set me free
