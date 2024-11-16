@@ -1,21 +1,3 @@
-Modem talking, modern walking in the streets
+hallo i am marsey / al. i am 19. i enjoy interactions and i do not bite (for the most part) so come hit me up. Especially if you share interests.
 
-New desire, take me higher,
-
-Lift me higher with your speed
-
-I need fire
-
-Get the satellite if you want to see me
-
-Talking on the net, I know the way you like it
-
-Get your credit card, 'cause I need no money,
-
-All I wanna get is you baby
-
-Running in the 90s, is a new way I like to be
-
-I'm just running in the 90s, come on baby run to me
-
-We are running in the 90s, is a new way to set me free
+Beware that I do not tweak over fiction, take that however you will.
